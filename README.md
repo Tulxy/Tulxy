@@ -20,7 +20,7 @@
 
 ## 📫 Kontakt
 
-- ✉️ Email: tomasvylimec@gmail.com
+- ✉️ Email: tomas.vylimec@gmail.com
 - 🌐 Portfolio: [tomasvylimec.cz](https://tomasvylimec.cz)  
 - 💬 Twitter / LinkedIn: [odkazy]
 
