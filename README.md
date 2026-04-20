@@ -1,4 +1,4 @@
-# 👋 Ahoj, já jsem Tom
+# _Y_
 
 ## 📫 Kontakt
 
